@@ -16,3 +16,7 @@ Sarabjeet Singh
 
 # Photos Link
  **To be shared soon**
+ 
+# Current Affairs
+
+[Telegram](http://t.me/currentaffairs2105)
