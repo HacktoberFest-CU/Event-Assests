@@ -7,9 +7,9 @@ Kanishk Gupta
 
 [LinkedIn](https://linkedin.com/in/gkanishk)
 
-[github](github.com/gkanishk)
+[github](https://github.com/gkanishk)
 
 Sarabjeet Singh
 
-[Linked In](https://www.linkedin.com/in/sarabs3/)
+[LinkedIn](https://www.linkedin.com/in/sarabs3/)
 
