@@ -14,6 +14,10 @@ Sarabjeet Singh
 [LinkedIn](https://www.linkedin.com/in/sarabs3/)
 [Twitter](https://twitter.com/sarabs3)
 
+Aman Yadav
+
+[LinkedIn](https://www.linkedin.com/in/amankumaryadav/)
+
 # Photos Link
  **To be shared soon**
  
