@@ -5,9 +5,7 @@ This contains ppts , contact details and photos of the event.
 
 Kanishk Gupta
 
-[LinkedIn](https://linkedin.com/in/gkanishk)
-
-[Github](https://github.com/gkanishk)
+[LinkedIn](https://linkedin.com/in/gkanishk) [Github](https://github.com/gkanishk)
 
 Email: kanishk@studentpartner.com
 
