@@ -23,7 +23,7 @@ Aman Yadav
 Email: yadav.aman099@gmail.com
 
 # Photos Link
- **To be shared soon**
+ [Link](https://drive.google.com/open?id=1CJWzFX9r5v9v7J5CvK-6cOcyd-WxvrM_)
  
 # Current Affairs
 
