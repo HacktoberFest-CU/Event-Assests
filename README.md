@@ -15,4 +15,4 @@ Sarabjeet Singh
 [Twitter](https://twitter.com/sarabs3)
 
 # Photos Link
- **TO be shared soon**
+ **To be shared soon**
