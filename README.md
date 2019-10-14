@@ -7,9 +7,11 @@ Kanishk Gupta
 
 [LinkedIn](https://linkedin.com/in/gkanishk)
 
-[github](https://github.com/gkanishk)
+[Github](https://github.com/gkanishk)
+
+Email: kanishk@studentpartner.com
 
 Sarabjeet Singh
 
 [LinkedIn](https://www.linkedin.com/in/sarabs3/)
-
+[Twitter](https://twitter.com/sarabs3)
