@@ -22,6 +22,9 @@ Aman Yadav
 
 Email: yadav.aman099@gmail.com
 
+# Certificates Link:
+[Link](https://drive.google.com/drive/folders/1_S_VnKgtsQo0OPdUK9SIWMviOTHWa1XZ)
+
 # Photos Link
  [Link](https://drive.google.com/open?id=1CJWzFX9r5v9v7J5CvK-6cOcyd-WxvrM_)
  
