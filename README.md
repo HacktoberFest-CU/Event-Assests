@@ -7,7 +7,7 @@ Kanishk Gupta
 
 [LinkedIn](https://linkedin.com/in/gkanishk) [Github](https://github.com/gkanishk)
 
-Email: kanishk@studentpartner.com
+Email: kanishk@studentambassadors.com
 
 Sarabjeet Singh
 
